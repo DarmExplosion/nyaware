@@ -1,2 +1,2 @@
 # nyaware
-kekw ec kys dumb bitch leaked ratio bozo
+a backup of the open source mc cheat nyaware
